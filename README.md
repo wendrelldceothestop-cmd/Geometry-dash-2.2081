@@ -1,5 +1,5 @@
 # Geometry-dash-2.2081
-Fonte: YouTube https://share.google/bnLdeN4jzfoihmTff
+Fonte: YouTube. https://share.google/bnLdeN4jzfoihmTff
 Geometry e ganhem a favor do mundo do mundo Geometry Dash
 Wendrell o e-mail particular
 
